@@ -7,6 +7,6 @@ Licence Name: **Write what you want**
 
 Licence Code: **1DBE-52DB-A726-B140-2AA8-7905-CFC9-8882**
 
-Note: **A pop-up will appear asking you to update Allavsoft, you can skip it or download it, the crack will still work.**
+Note: **If you update Allavsoft, the crack will still work.**
 
 ![Allavsoft-Cracked](https://user-images.githubusercontent.com/105000222/173907747-e36fe969-2505-4e90-85b2-360f8ba553f6.png)
